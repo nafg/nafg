@@ -1,6 +1,7 @@
 <!-- ### Hi there 👋 -->
 
-You can [hire me for consultation or advice](https://link.waveapps.com/xrsgvd-nadyf7)
+You can [hire me for consultation or advice](https://www.picktime.com/nafg)
+
 
 <!--
 **nafg/nafg** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
